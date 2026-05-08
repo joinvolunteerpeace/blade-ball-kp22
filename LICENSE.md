@@ -1,4 +1,4 @@
-
+blade ball Script automatic is the best blade ball Script, featuring silent aim and auto-collect. Safe and powerful for all your needs.
 
 
 
